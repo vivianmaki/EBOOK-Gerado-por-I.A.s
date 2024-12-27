@@ -11,3 +11,5 @@ O conteúdo foi gerado através do ChatGPT e diagramado no Power Point
 
 ## 🚀 Resultados
 Conteúdo esclarecedor, visa estimular as pessoas a adotarem a prática 
+
+[Diabetes sob controle.pdf](https://github.com/user-attachments/files/18261591/Diabetes.sob.controle.pdf)
